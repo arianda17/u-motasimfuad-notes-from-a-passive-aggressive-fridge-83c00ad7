@@ -1,0 +1,1 @@
+Your leftovers outlasted your last relationship, and I still don't get a thank you for keeping them cold.
